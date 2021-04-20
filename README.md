@@ -1,0 +1,5 @@
+- 👋 Hi, I’m triple x
+- 👀 I’m interested in.... idk :0
+- 🌱 I’m currently learning lua, java
+- 💞️ I’m looking to collaborate on... idk :0
+- 📫 How to reach me - discord: triple x#5926 ; vk - vk.com/quincystar ; telegram: @oktriplex ; inst: xlsxslx;
