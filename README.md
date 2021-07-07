@@ -1,5 +1,5 @@
 # Hi, I’m triple x
-### 🌱 I’m currently learning java
+### 🌱 Java and some GLua Developer
 
 # 📫 How to reach me <br>
 ### **Discord: triple x#5926 ;**
