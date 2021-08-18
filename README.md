@@ -1,3 +1,4 @@
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=oktriplex)
 # Hi, I’m triple x
 ### 🌱 Java and some GLua Developer
 
